@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Nour
-- 📫 Reach out say hi, my email is nkahilee@gmail.com
+- 📫 Reach out and say hi, my email is nkahilee@gmail.com
